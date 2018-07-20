@@ -21,7 +21,34 @@
 ## Jadi sebetulnya apa yang di lakukan hopskin ?
 
 @ol
-- ia menciotakan craving(mengidam)
+- ia menciptakan craving(mengidam)
 - Dan mengidam itu ternyata adalah yang menyebabkan tanda dan ganjaran bekerja ,mengidam itu lah yang menggerakan lingkar kebiasaan 
 
 ---
+
+### contoh mengidam :
+
+@ol
+- merokok
+- surat elektronik (wa,bbm,messanger,dll)
+- lari pagi
+- beres beres rumah
+- menyikat gigi
+- dll
+
+---
+
+
+### saya ambil rokok ?
+
+@ol
+- satu pak marlboro-otak mulai mengantisipasi hantaman nikotin !
+
+
+---
+
+### Thank you for your attention :)
+
+
+
+
