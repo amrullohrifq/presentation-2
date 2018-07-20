@@ -39,8 +39,7 @@
 ---
 
 
-### saya ambil rokok ?
-
+### saya ambil contoh roko :
 @ol
 - satu pak marlboro-otak mulai mengantisipasi hantaman nikotin !
 
